@@ -5,7 +5,7 @@ Copy and paste link For Get Fortnite v Bucks Free
 
 
 
-✅ <strong> <a href="https://newsnioworld.com/fortnite-g"> CLICK HERE TO GET NOW FREE</a>
+✅ <a href="https://newsnioworld.com/fortnite-g"> CLICK HERE TO GET NOW FREE</a>
 
 
 Latest Update 05 July 2024
